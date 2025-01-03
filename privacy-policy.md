@@ -1,4 +1,4 @@
-Effective Date: 03 Jan, 2025
+Privacy Policy
 
 This Privacy Policy explains how Tool Tracker App collects, uses, and shares your information when you use our mobile application ("App").
 
